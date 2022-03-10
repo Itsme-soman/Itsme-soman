@@ -7,7 +7,7 @@
 - 👯 I’m looking to collaborate on other repositorys
 - 💬 Ask me about Wa bot...!
 - 📫 How to reach me: 👇🏼
-<a href="https://wa.me/918714183251?text=Hi%20Kichu20%Ser20%I%20Am%20From%20GitHub%20☺️">
+<a href="https://wa.me/918714183251?text=_*Hi%20Kichu%20Ser%20I%20Am%20From%20GitHub%20☺️*_">
     <img src="https://img.shields.io/badge/WhatsApp-25D366?style=for-the-badge&logo=whatsapp&logoColor=white" />
   </a>&nbsp;&nbsp;
   <a
